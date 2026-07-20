@@ -1,2 +1,2 @@
 # jamo
-Page barnoota ammayyaa online itti baratamu 
+Page barnootni ammayyaa online itti baratamu 
